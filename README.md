@@ -1,2 +1,0 @@
-# myprofile.io
-PERSONAL PROFILE DESCRIPTION
